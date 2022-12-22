@@ -2,7 +2,7 @@
 
 💻 Full stack developer since 2018 <br/>
 🎓 Computer technician <br/>
-📒 Student of Systems Analysis and Development and <br/>
+📒 Systems Analysis and Development Student <br/>
 
 <br/>
 
